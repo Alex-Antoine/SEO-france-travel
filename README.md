@@ -1,2 +1,2 @@
 # SEO-france-travel
-Find out example of godd SEO practices for french travel keywords
+Find out example of good SEO practices for french travel keywords
